@@ -3,8 +3,5 @@
 💪 ¡Apasionado por asegurar el futuro digital! 🛡️🚀  
 
 
-[[[https://tryhackme-badges.s3.amazonaws.com/Refreh.png](https://tryhackme-badges.s3.amazonaws.com/Refreh.png)
-](https://tryhackme-badges.s3.amazonaws.com/Refreh.png)https://tryhackme-badges.s3.amazonaws.com/Refreh.png](https://tryhackme-badges.s3.amazonaws.com/Refreh.png)https://tryhackme-badges.s3.amazonaws.com/Refreh.png
-
 
 
