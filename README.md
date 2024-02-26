@@ -3,5 +3,6 @@
 💪 ¡Apasionado por asegurar el futuro digital! 🛡️🚀  
 
 
-![image](https://github.com/refreh/refreh/assets/75564281/0c776717-7b60-42cb-b311-83e1b05c47b2)
+![image](https://github.com/refreh/refreh/assets/75564281/2b09d282-499f-4f61-97c2-6e7995fc8e9d)
+
 
